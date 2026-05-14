@@ -1,4 +1,4 @@
-#  
+#  instant ultimate mining tycoon Scripts is the best ultimate mining tycoon Script, featuring infinite resources and one-hit kill. Safe and powerful
 
 
 
